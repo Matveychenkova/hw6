@@ -17,3 +17,9 @@ Truck является американским синонимом британ�
 II часть
 
 1. 
+![сир](https://pp.userapi.com/c845417/v845417118/18ca6/Uz1-fYNJ_pE.jpg)
+
+![сир](https://pp.userapi.com/c845417/v845417118/18caf/BoCbx3NNI1k.jpg)
+
+2.
+![sir](https://pp.userapi.com/c845417/v845417846/1ac2f/ry0pawqKxVQ.jpg)
