@@ -24,3 +24,11 @@ II часть
 
 2.
 ![sir](https://pp.userapi.com/c845417/v845417846/1ac2f/ry0pawqKxVQ.jpg)
+
+Самым частотным дополнением для глагола deny является слово allegation (0.87 на миллион), при этом случаев употребления такого дополнения с синонимичным глаголом refuse нет вообще.  
+![сир](https://pp.userapi.com/c845524/v845524270/19a27/YUAn3npSmoo.jpg)
+
+Дополнения, которые употребляются с глаголом deny,но не встречаются с глаголом refuse:charge, existence, involvement, murder, knowledge, report, approval, rumor, accusation, responsibility. 
+Самое употребимое дополнение с глаголом refuse - offer (0.90 на миллион). 
+Дополнения, которые употребляются с глаголом refuse, но не встречаются с глаолом deny: leave, treatment, admission, bail, invitation, consent. 
+С каждым глаголом могут употребляться дополнения access и visa.
