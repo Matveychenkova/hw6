@@ -36,3 +36,6 @@ II часть
 
 3.
 ![сир](https://sun1-1.userapi.com/c824504/v824504199/10036b/ON0tjGfy7vA.jpg)
+![лл](https://pp.userapi.com/c845421/v845421803/1ea77/eoKfl6TWprM.jpg)
+
+![ллл](https://pp.userapi.com/c845421/v845421803/1ea80/Utcy7zPmdlU.jpg)
